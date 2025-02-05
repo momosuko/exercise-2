@@ -1,1 +1,1 @@
-Exercise 1 - 2025-01
+Exercise 2 - 2025-02
